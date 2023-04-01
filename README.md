@@ -1,1 +1,1 @@
-# The NZ Wank Police
+# G£T M£G4 EXP0Z£D
